@@ -1,1 +1,3 @@
 - 👋 Hi, I’m RAMANA REDDY
+- 💞️ I’m looking to collaborate.......
+- 😄 Pronouns
